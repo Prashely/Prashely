@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Prashely
+- # 👋 Hi, I’m @Prashely
 - 👀 I’m interested in  | Anime (Attack on Titan is 🐐ed)
                         | Movies (The Dark Knight)
                         | Series (Ummm The Fallout)
