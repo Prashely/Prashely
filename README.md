@@ -10,6 +10,6 @@
 - 😄 Pronouns: HIM
 - ⚡ Fun fact:  Fidelity Investments found that 88 percent of all millionaires are self-made, meaning they did not inherit their wealth.
 
-- PROOOOO CRYPTO!!!!
+- contact@prashely.com
 - LIVE✅
 
