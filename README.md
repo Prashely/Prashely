@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Prashely
-- I love building cool sh*t, especially sh*t that makes business simple and affordable for aspiring entrepreneurs such as myself. I also love bugs unlike you😂...
+- I love building cool stuff, especially stuff that makes business simple and affordable for aspiring entrepreneurs such as myself. I also love bugs unlike you😂...
 - 👀 Other interests in  - Anime (Attack on Titan is 🐐ed)
                         - Movies (The Dark Knight)
                         - Series (Ummm The Fallout)
